@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Java,Python**
 
-- 📫 How to reach me **akash.mohanty@rcm.ac**
+- 📫 How to reach me **www.makash.online**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
